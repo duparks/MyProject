@@ -1,4 +1,4 @@
-# MyProject
+# My Notes
 
 
 https://docs.google.com/document/d/1SdjG_MDykLs7vQnJp5h8Tgm7uMMfme7B_z5VdJIS_zo/edit#
